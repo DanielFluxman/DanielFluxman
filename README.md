@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DanielFluxman
-- Queen's University Compuet Engineering Graduate
+- Queen's University Computer Engineering Graduate
 - Professional in business strategy & analytics
 - Vibe Coding Apps/Websites in free time ( Twist!, Same But Different)
 - More to come 
